@@ -10,7 +10,4 @@ Hi, I am SW Yasin, a professional Shopify and WordPress website developer, I can
 ✅ Shopify
 ✅ Graphics Design
 ☕ Connect with me!
-https://www.facebook.com/swyasin
-https://www.pinterest.com/yasin9530/
-https://x.com/yasin9530
-https://www.behance.net/swyasin9530
+
